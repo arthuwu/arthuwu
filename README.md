@@ -1,1 +1,1 @@
-0 coding skill
+cannot code
